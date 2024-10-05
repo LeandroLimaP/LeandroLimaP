@@ -5,6 +5,7 @@
 - 📫 How to contact me on WhatsApp
 - 😄 Pronouns: he
 - ⚡ Fun fact: I'm funny
+- Rede sociais
 
 
 <!---
